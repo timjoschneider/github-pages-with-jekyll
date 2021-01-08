@@ -1,3 +1,5 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+Neue Streamingdienste benötigt!
+
+Streamify - professionalice ur streaming experience!
